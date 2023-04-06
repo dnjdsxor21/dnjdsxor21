@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-## [Blog](https://dnjdsxor21.github.io/)
+## Come to my [Blog](https://dnjdsxor21.github.io/)
 <!--
 **dnjdsxor21/dnjdsxor21** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
